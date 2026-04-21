@@ -1,76 +1,50 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/fazbear-Official/uploads/main/uploads/upload-1776728586817.jpg" alt="Balis Banner" width="100%">
+  <img src="https://raw.githubusercontent.com/fazbear-Official/uploads/main/uploads/upload-1776728586817.jpg" alt="Daven Banner" width="100%">
 </p>
 
 <div align="center">
   <a href="https://whatsapp.com/channel/0029Vb7AkG84inotOc8BXE1K">
-    ٺـم࣬ ٺحہּٰډيـثَ ۿـﮂ۬أ أݪـم࣬سٰٺــوٰډـ؏ٚ  بٚٺــأࢪيخَ ؍ 🌸♡゙ ُ𓂁 (2026-3-22)
+    ✨ 𝖳𝗁𝗂𝗌 𝖱𝖾𝗉𝗈𝗌𝗂𝗍𝗈𝗋𝗀 𝖧𝖺𝗌 𝖡𝖾𝖾𝗇 𝖴𝗉𝖽𝖺𝗍𝖾𝖽 𝖡𝗒 𝖣𝖺𝗏𝖾𝗇 ✨ <br>
+    📅 𝖫𝖺𝗌𝗍 𝖬𝗈𝖽𝗂𝖿𝗂𝖼𝖺𝗍𝗂𝗈𝗇: (2026-04-21)
   </a>
 </div>
 
 ---
 
 <div align="center">
-  <strong>𝑻𝒉𝒆𝒔𝒆 𝒃𝒂𝒚𝒍𝒊𝒆𝒔 𝒂𝒓𝒆 𝒎𝒂𝒅𝒆 𝒃𝒚</strong>
+  <strong>💎 𝑻𝒉𝒆 𝑼𝒍𝒕𝒊𝒎𝒂𝒕𝒆 𝑾𝒉𝒂𝒕𝒔𝒂𝒑𝒑 𝑨𝑷𝑰 𝑭𝒓𝒂𝒎𝒆𝒘𝒐𝒓𝒌 💎</strong>
 </div>
 
 <h1 align="center">
-  <span style="color:red; font-size:55px;">𝑴𝑶𝑵𝑻𝑬 𝑫𝑬𝑽</span>
+  <span style="color:#61afef; font-size:55px;">𝑫𝑨𝑽𝑬𝑵 𝑺𝒀𝑺𝑻𝑬𝑴</span>
 </h1>
 
-<h3 align="center">𝑴𝑶𝑵𝑻𝑬 𝑻𝑶𝑷 𝟏 𝑫𝑬𝑽 𝑨𝑹</h3>
+<p align="center">
+  <kbd>𝑴𝑶𝑫𝑬𝑹𝑵</kbd> • <kbd>𝑭𝑨𝑺𝑻</kbd> • <kbd>𝑷𝑹𝑬𝑴𝑰𝑼𝑴</kbd>
+</p>
 
 ---
 
-<div align="center">
-    ⚡ 𝑩𝒂𝒍𝒊𝒔 𝑬𝒙𝒑𝒍𝒂𝒏𝒂𝒕𝒊𝒐𝒏 ⚡          📲 𝑾𝒉𝒂𝒕𝒔𝒂𝒑𝒑 𝑩𝒐𝒐𝒕 𝑺𝒚𝒔𝒕𝒆𝒎 𝑵𝑶𝑫𝑬          🔗 𝑾𝒐𝒓𝒌𝒆𝒓 𝒍𝒊𝒏𝒌𝒊𝒏𝒈 𝒕𝒉𝒓𝒐𝒖𝒈𝒉 𝒑𝒉𝒐𝒏𝒆           𝒏𝒖𝒎𝒃𝒆𝒓 𝒐𝒓 𝑸𝑹 𝒔𝒚𝒔𝒕𝒆𝒎                 🛠️ 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒅 𝒘𝒊𝒕𝒉 𝒉𝒊𝒈𝒉 𝒄𝒓𝒂𝒇𝒕 👍🐦     
-</div>
+### 🛠️ 𝖣𝖾𝗏𝖾𝗅𝗈𝗉𝖾𝗋 𝖨𝗇𝖿𝗈𝗋𝗆𝖺𝗍𝗂𝗈𝗇
+- **𝖭𝖺𝗆𝖾:** 𝖬𝗎𝗌𝗍𝖺𝖿𝖺 (𝖣𝖺𝗏𝖾𝗇)
+- **𝖲𝗉𝖾𝖼𝗂𝖺𝗅𝗂𝗍𝗒:** 𝖶𝗁𝖺𝗍𝗌𝖺𝗉𝖯 𝖠𝗎𝗍𝗈𝗆𝖺𝗍𝗂𝗈𝗇 & 𝖭𝗈𝖽𝖾.𝗃𝗌 𝖤𝗑𝗉𝖾𝗋𝗍
+- **𝖫𝗈𝖼𝖺𝗍𝗂𝗈𝗇:** 𝖤𝗀𝗒𝗉𝗍 🇪🇬
 
 ---
 
-## 🇸🇩 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒆𝒓 𝑪𝒐𝒏𝒕𝒂𝒄𝒕
+# 🚀 𝑩𝒂𝒍𝒊𝒔 𝑷𝒓𝒐 𝑭𝒆𝒂𝒕𝒖𝒓𝒆𝒔 (𝑵𝒆𝒘)
 
-**𝑴𝒐𝒏𝒕𝒆 𝑫𝒆𝒗**  
-📞 +249 92242 0554  
-🇸🇩 𝑺𝒖𝒅𝒂𝒏
-
----
-
-# 🚀 𝑩𝒂𝒍𝒊𝒔 𝑭𝒆𝒂𝒕𝒖𝒓𝒆𝒔
-
-> 𝑴𝒐𝒅𝒊𝒇𝒊𝒆𝒅 𝑩𝒂𝒊𝒍𝒆𝒚𝒔 𝑾𝒉𝒂𝒕𝒔𝒂𝒑𝒑 𝑾𝒆𝒃 𝑨𝑷𝑰 𝑺𝒚𝒔𝒕𝒆𝒎
-
-### ✨ 𝑴𝒂𝒊𝒏 𝑭𝒆𝒂𝒕𝒖𝒓𝒆𝒔
-
-✅ 𝑺𝒕𝒂𝒃𝒍𝒆 & 𝑳𝒐𝒏𝒈 𝑳𝒂𝒔𝒕𝒊𝒏𝒈  
-✅ 𝑴𝒖𝒍𝒕𝒊-𝑫𝒆𝒗𝒊𝒄𝒆 𝑺𝒖𝒑𝒑𝒐𝒓𝒕 (𝑴𝑫)  
-✅ 𝑩𝒖𝒕𝒕𝒐𝒏𝒔 𝑺𝒖𝒑𝒑𝒐𝒓𝒕  
-✅ 𝑪𝒖𝒔𝒕𝒐𝒎 𝑷𝒂𝒊𝒓𝒊𝒏𝒈 𝑪𝒐𝒅𝒆 𝑺𝒖𝒑𝒑𝒐𝒓𝒕  
-✅ 𝑭𝒖𝒍𝒍 𝑮𝒓𝒐𝒖𝒑 𝑺𝒖𝒑𝒑𝒐𝒓𝒕  
-✅ 𝑭𝒂𝒔𝒕 𝑬𝒗𝒆𝒏𝒕 𝑯𝒂𝒏𝒅𝒍𝒊𝒏𝒈  
-✅ @𝒍𝒊𝒅 𝑴𝒆𝒏𝒕𝒊𝒐𝒏 𝑭𝒊𝒙 𝑭𝒐𝒓 𝑮𝒓𝒐𝒖𝒑𝒔  
+| Feature | Description | Status |
+| :--- | :--- | :--- |
+| **Advanced Logging** | New Terminal UI with Neon colors & icons | ✅ Stable |
+| **Auto-Seen** | Automatically logs & views status updates | 🔥 New |
+| **Anti-Modify** | Protect group settings from unauthorized changes | 🛡️ Secured |
+| **Native Flow** | Full support for interactive WhatsApp menus | ✨ Premium |
+| **Lid Resolution** | Fixes @lid mentions in all group types | ✅ Fixed |
 
 ---
 
-## 📦 𝑰𝒏𝒔𝒕𝒂𝒍𝒍𝒂𝒕𝒊𝒐𝒏
+## 📦 𝖨𝗇𝗌𝗍𝖺𝗅𝗅𝖺𝗍𝗂𝗈𝗇
 
 ```bash
-npm install
-⚙️ 𝑬𝒗𝒆𝒏𝒕 𝑯𝒂𝒏𝒅𝒍𝒊𝒏𝒈
-𝑩𝒂𝒍𝒊𝒔 𝒖𝒔𝒆𝒔 𝑬𝒗𝒆𝒏𝒕𝑬𝒎𝒊𝒕𝒕𝒆𝒓 𝒔𝒚𝒔𝒕𝒆𝒎 𝒋𝒖𝒔𝒕 𝒍𝒊𝒌𝒆 𝒐𝒓𝒊𝒈𝒊𝒏𝒂𝒍 𝑩𝒂𝒊𝒍𝒆𝒚𝒔.
-𝑰𝒎𝒑𝒐𝒓𝒕𝒂𝒏𝒕: 𝑪𝒉𝒆𝒄𝒌 𝒂𝒍𝒍 𝑩𝒂𝒊𝒍𝒆𝒚𝒔 𝒆𝒗𝒆𝒏𝒕𝒔 𝒅𝒐𝒄𝒖𝒎𝒆𝒏𝒕𝒂𝒕𝒊𝒐𝒏 𝒃𝒆𝒇𝒐𝒓𝒆 𝒖𝒔𝒆.
-𝑬𝒙𝒂𝒎𝒑𝒍𝒆:
-𝑱𝒔
-𝑪𝒐𝒑𝒚 𝒄𝒐𝒅𝒆
-𝒄𝒐𝒏𝒔𝒕 𝒔𝒐𝒄𝒌 = 𝒎𝒂𝒌𝒆𝑾𝑨𝑺𝒐𝒄𝒌𝒆𝒕()
-
-𝒔𝒐𝒄𝒌.𝒆𝒗.𝒐𝒏('𝒎𝒆𝒔𝒔𝒂𝒈𝒆𝒔.𝒖𝒑𝒔𝒆𝒓𝒕', ({ 𝒎𝒆𝒔𝒔𝒂𝒈𝒆𝒔 }) => {
-  𝒄𝒐𝒏𝒔𝒐𝒍𝒆.𝒍𝒐𝒈('𝑵𝒆𝒘 𝒎𝒆𝒔𝒔𝒂𝒈𝒆 𝒓𝒆𝒄𝒆𝒊𝒗𝒆𝒅:', 𝒎𝒆𝒔𝒔𝒂𝒈𝒆𝒔)
-})
-🔧 𝑮𝒓𝒐𝒖𝒑 𝑴𝒆𝒏𝒕𝒊𝒐𝒏 𝑭𝒊𝒙 (@𝒍𝒊𝒅 𝑺𝒖𝒑𝒑𝒐𝒓𝒕)
-𝑰𝒏𝒕𝒆𝒈𝒓𝒂𝒕𝒆𝒅 𝒔𝒚𝒔𝒕𝒆𝒎 𝒕𝒐 𝒂𝒖𝒕𝒐𝒎𝒂𝒕𝒊𝒄𝒂𝒍𝒍𝒚 𝒓𝒆𝒔𝒐𝒍𝒗𝒆 @𝒍𝒊𝒅 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔 𝒊𝒏𝒔𝒊𝒅𝒆 𝒈𝒓𝒐𝒖𝒑𝒔.
-✔ 𝑨𝒖𝒕𝒐𝒎𝒂𝒕𝒊𝒄𝒂𝒍𝒍𝒚 𝒎𝒂𝒑𝒔 𝒍𝒊𝒅 𝒕𝒐 𝒓𝒆𝒂𝒍 𝒋𝒊𝒅
-✔ 𝑹𝒆𝒑𝒍𝒂𝒄𝒆𝒔 𝒎𝒆𝒏𝒕𝒊𝒐𝒏 𝒕𝒆𝒙𝒕 𝒄𝒐𝒓𝒓𝒆𝒄𝒕𝒍𝒚
-✔ 𝑾𝒐𝒓𝒌𝒔 𝒘𝒊𝒕𝒉 𝒎𝒖𝒍𝒕𝒊-𝒅𝒆𝒗𝒊𝒄𝒆
-�
-🔥 𝑷𝒐𝒘𝒆𝒓𝒆𝒅 𝑩𝒚 𝑴𝑶𝑵𝑻𝑬 𝑫𝑬𝑽 🔥 
+npm install baileys-pro
